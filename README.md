@@ -1,6 +1,6 @@
 ## <font color=orange>01 关于我</font>
 
-##### <font color=orange>人生即产品，在产品路上修行</font>
+##### <font color=orange>人生即产品，修行在产品路上。</font>
 
 >个人微信号：zf519678391 公众号：aipm001
 
